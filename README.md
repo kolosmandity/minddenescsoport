@@ -1,0 +1,2 @@
+# minddenescsoport
+még nm tudom
